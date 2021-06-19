@@ -2,5 +2,6 @@
 
 Esta serie de libro cuenta la historia de un hacker excepcional.
 
-**Calixto Lopez**
+**Calixto Lopez** , Larry plotter fan
+
 
